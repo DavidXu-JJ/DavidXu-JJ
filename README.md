@@ -2,7 +2,7 @@
 
 📫 How to reach me: davidxujw@@gmail.com
 
-Please at least let me know who you are when you contact me by email.
+Please at least let me know who you are when contact me through email.
 
 ### Miscellaneous profile
 
