@@ -1,4 +1,4 @@
-# (I'm temporarily hide my activity and will open the activity in future. Please view my homepage for my work.)
+# (I'm temporarily hide my activity for some reasons and will open my activity in future. Please view my homepage for my work.)
 
 ### TL;DR
 
