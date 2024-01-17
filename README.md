@@ -1,3 +1,5 @@
+# (I'm temporarily hide my activity and will open the activity in future. Please view my homepage for my work.)
+
 ### TL;DR
 
 📫 How to reach me: davidxujw@@gmail.com
