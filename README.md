@@ -1,6 +1,6 @@
 ### TL;DR
 
-📫 How to reach me: davidxujw@@gmail.com
+📫 How to reach me: xujw2023@@shanghaitech.edu.cn
 
 Please at least let me know who you are when contact me through email.
 
