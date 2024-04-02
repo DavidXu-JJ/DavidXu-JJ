@@ -10,6 +10,8 @@ Please at least let me know who you are when contact me through email.
   <summary>
     What I'm interested in:
   </summary>
+
+- Geometry.
   
 - Graphics and 3D Vision.
 
