@@ -2,7 +2,7 @@
 
 📫 How to reach me: xujw2023@@shanghaitech.edu.cn
 
-Please at least let me know who you are when contacting me through email.
+Please **at least** let me know who you are when contacting me through email.
 
 ### Miscellaneous profile
 
